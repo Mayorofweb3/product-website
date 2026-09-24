@@ -661,9 +661,15 @@ Oral expressions of partnership are therefore treated as access, not as evidence
 
 Rather than depend on low-conversion cold outreach, the Project Lead used The Actuarial and Insurance Symposium 2.0 to bring senior industry, regulatory and academic figures into direct contact with the research team. The photographic record below documents the multi-stakeholder composition of the event. Chapter 7 sets out its epistemic status and limits.
 
+![Moderated industry panel session](./images/IMG_6170.jpg)
+
 **Figure 4.1:** Moderated industry panel session at The Actuarial and Insurance Symposium 2.0 (26 August 2026), with panellists drawn from the underwriting and Takaful segments addressing an audience of students, academics and practitioners. Panel content is recorded as event-based observation and is not treated as adoption evidence (Bias Control 5). *Photograph: Jimmy's Scope.*
 
+![Group photograph of executives, guests of honour, staff and volunteers](./images/IMG_6444__1_.jpg)
+
 **Figure 4.2:** Group photograph of invited executives, guests of honour, ASISA ABU officers, staff and student volunteers, documenting the cross-sector composition of the Symposium (regulatory, underwriting, Takaful, insurtech, professional-body and academic participants). *Photograph: Jimmy's Scope.*
+
+![Red-carpet reception of special guests and sponsor staff](./images/IMG_6459.jpg)
 
 **Figure 4.3:** Red-carpet reception of special guests, staff of one of our sponsoring insurers (Heirs Insurance Group), ASISA ABU officers (President and Industry & Partnership lead) and volunteers before the event backdrop listing keynote speakers and partner institutions. This setting supported the in-person introductions on which the recruitment plan rests. *Photograph: Jimmy's Scope.*
 
@@ -840,21 +846,39 @@ The Symposium combined an in-person audience of students, academics and practiti
 
 ### 7.7 Photographic Record and Public Channels
 
+![President's vote of thanks and closing remarks](./images/IMG_6429.jpg)
+
 **Figure 7.1:** The ASISA ABU President and Project Lead, Odufuwa O. Oluwakayode, delivering the vote of thanks and closing remarks, acknowledging guests of honour, sponsors, speakers and participants. *Photograph: Jimmy's Scope.*
+
+![Arrival of guests of honour](./images/IMG_5572.jpg)
 
 **Figure 7.2:** Arrival of guests of honour and senior invitees at the venue, in front of the programme backdrop listing guests of honour, paper presenters and panelists. *Photograph: Jimmy's Scope.*
 
+![Industry guest at the speaker backdrop](./images/IMG_5566.jpg)
+
 **Figure 7.3:** An industry guest at the red-carpet station beside the programme backdrop identifying guests of honour, paper presenters and panelists. *Photograph: Jimmy's Scope.*
+
+![Industry guest before the main event backdrop](./images/IMG_5563.jpg)
 
 **Figure 7.4:** An industry guest before the main event backdrop showing the Symposium title and the marks of partner institutions (CIIN, NADP, Leadway Assurance, NDIC, NSIA Insurance, Tangerine, InsureIQ, Heirs Insurance Group, Salam Takaful and Noor Takaful). *Photograph: Jimmy's Scope.*
 
+![Presentation of ASISA ABU's Institutional Award of Excellence to Heirs Group](./images/IMG_6285.jpg)
+
 **Figure 7.5:** Presentation of ASISA ABU's Institutional Award of Excellence to Heirs Group. The recognition is disclosed under §6.4, and recipients are treated as sponsor-affiliated respondents. *Photograph: Jimmy's Scope.*
+
+![Attendees in the lecture theatre](./images/IMG_6195.jpg)
 
 **Figure 7.6:** Attendees in the lecture theatre, including students, academics and industry delegates, during the formal proceedings. *Photograph: Jimmy's Scope.*
 
+![Wider view of the audience during the plenary session](./images/IMG_5916.jpg)
+
 **Figure 7.7:** Wider view of the audience during the plenary session, showing the participation of student members and professional delegates. *Photograph: Jimmy's Scope.*
 
+![Attendees reading agricultural Takaful literature](./images/IMG_5876.jpg)
+
 **Figure 7.8:** Attendees reading agricultural Takaful insurance cover literature that carries headings in several Nigerian languages, illustrating live industry engagement with products relevant to use case 1 and to the multilingual requirement of Bias Control 4. *Photograph: Jimmy's Scope.*
+
+![Organising-committee volunteers](./images/IMG_5593.jpg)
 
 **Figure 7.9:** ASISA ABU organising-committee members serving in the Venue Management and Welfare roles at the red-carpet backdrop, representing the student-led operational capacity that delivered the event. *Photograph: Jimmy's Scope.*
 
